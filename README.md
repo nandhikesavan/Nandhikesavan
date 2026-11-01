@@ -1,5 +1,5 @@
 
-# Hi, I'm Nandhikesavan V 👋
+# Hi, I'm Nandhikesavan V 
 
 ### Mechanical Engineer | AI & Robotics Developer
 
